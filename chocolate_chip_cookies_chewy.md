@@ -1,3 +1,5 @@
+# Chewy Chocolate Chip Cookies (Original recipe from Chef Steps)
+
 * 287 g Butter, unsalted,
 * 213 g Cane sugar
 * 213 g Brown sugar
